@@ -7,11 +7,9 @@
                          : webappdestiny@gmail.com
 
 - 📫 Also you can follow us at =>
-                                    www.instagram.com/webappdestiny
-                                    
-                                    www.twitter.com/webappdestiny
-                                    
-                                    www.facebook.com/webappdestiny
+                                    www.instagram.com/webappdestiny || 
+                               www.twitter.com/webappdestiny   ||
+                                   www.facebook.com/webappdestiny
 
 
 - Hope to see you soon :-)
