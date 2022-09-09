@@ -3,8 +3,8 @@
 
 - 🌱 We are a web/app/software product/service based startup.
 
-- 📫 You can reach us at : contact@webappdestiny.com 
-                         : webappdestiny@gmail.com
+- 📫 You can reach us at => contact@webappdestiny.com 
+                         || webappdestiny@gmail.com
 
 - 📫 Also you can follow us at =>
                                     www.instagram.com/webappdestiny || 
